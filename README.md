@@ -1,4 +1,4 @@
-# Hola, sóc Biel Soler Lasuncion 👋
+# Hola, sóc Biel Soler Lasunción 👋
 
 ## Sobre mi
 - 🎓 Actualment estic cursant el primer any de DAW a l'Institut Sa Palomera a Blanes.
